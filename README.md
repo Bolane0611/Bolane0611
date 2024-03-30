@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Bolane
 - 👀 I’m interested in ...Money💲💲💲
 - 🌱 I’m currently learning ...Cyber Security
-- 💞️ I’m looking to collaborate on ...A Cyber Security Program to keep all these Gremlins out of upur personal information. 
+- 💞️ I’m looking to collaborate on ...A Cyber Security Program to keep all these Gremlins out of your personal information. 
 - 📫 How to reach me ...(336)506-8923
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...i Trust nobody!!!
